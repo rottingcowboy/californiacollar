@@ -1,4 +1,6 @@
-  ![](https://files.catbox.moe/91sxq0.png)
+ ![](https://files.catbox.moe/hn20ku.jpg)
 
 
+
+   
  WIP WIPWIPWIWPIWP idkidkdikd ihate this..? im gonna commit
