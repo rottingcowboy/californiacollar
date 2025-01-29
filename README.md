@@ -1,11 +1,5 @@
- ![](https://files.catbox.moe/hfi4io.jpg)
- __'what a mess this all is.'__
+![](https://media.discordapp.net/attachments/880975633293934595/1333955301124083806/tumblr_70540691f823252bfd880d35e436fe13_ee4f7694_1280__fliter--dark-blue-sepia__channel--red__mode--normal.png?ex=679ac62f&is=679974af&hm=8aa524a3a38a34b7e7c9c311695f842378bc1fbb830f12dbe4222a6fa554170e&=&format=webp&quality=lossless)
 
- always w2i, aint usually active. busy fella.
+![](https://64.media.tumblr.com/b5987a633a0152d3f4b4d834fd0af073/c960e3311dc68f74-1e/s640x960/ddc05b601d93017e514a6700529837a28267013f.pnj)
 
- hello ya little shit. @bpdbpoy.![](https://enchantments.carrd.co/assets/images/gallery19/589d51a0.gif?v=5c8435d5)
-
-![](https://adriansblinkiecollection.neocities.org/stamps/e69.gif) ![](https://adriansblinkiecollection.neocities.org/stamps/e43.gif) ![](https://adriansblinkiecollection.neocities.org/stamps/e53.jpg) ![](https://adriansblinkiecollection.neocities.org/stamps/e64.gif)   
-
-
-![](https://external-media.spacehey.net/media/sR4k-zzFWqYPPHMSnuC4-HanrQ-0eaFMJO3sHQ4ngkmQ=/https://i2.glitter-graphics.org/pub/2555/2555282d1y1n0qhg4.gif)
+everythings a wip sorgy uhh vatbox is dying fer me
