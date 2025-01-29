@@ -3,7 +3,6 @@
 ![](https://64.media.tumblr.com/d7eb26ccd0a6691ca2fe98d606e750ac/5641171ab949b59d-e6/s1280x1920/738dce034abf186178ab20ce42ed27e5616a0d0f.pnj)
 
 everythings a wip sorgy uhh catbox is dying fer me
-
 while i do this..uhh he/him transman, anarchist,  rdr fanatic, arthur mrogan irl. dni under 14 above 26 at max, all art credits to skibiborg on twitter. i like micah bell.
 
 
